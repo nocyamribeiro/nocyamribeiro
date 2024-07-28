@@ -3,6 +3,8 @@
 
 - 📫 How to reach me **nocyamribeiro@gmail.com**
 
+- I am currently working **at Cortex Intelligence as a Tech Lead.**
+
 - 📄 Know about my experiences [https://www.linkedin.com/in/maycon-leite-ribeiro/](https://www.linkedin.com/in/maycon-leite-ribeiro/)
 
 - ⚡ Fun fact **I love sports such as swimming, soccer, and biking!**
